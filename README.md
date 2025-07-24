@@ -1,0 +1,1 @@
+# The-Golden-K-Hypothesis-Axiomatic-Synthesis-Emergent-Dynamics-and-Phenomenology
